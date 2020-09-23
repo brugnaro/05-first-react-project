@@ -1,1 +1,1 @@
-Estilizando Detalhe: 3:45
+Estilizando Detalhe: 10:00
